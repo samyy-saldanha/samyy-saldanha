@@ -12,7 +12,7 @@ Você pode entrar em contato comigo 📫
 
 @s.saldanha._  💬
 
-![](https://media1.tenor.com/m/BN4aYT4HphcAAAAd/chico-moedas.gif)
+![](https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExb2xuMmVyMnNnankxNjViemx2Mm0wcWtmZmttcXhmeDAzbDB6ZDluMyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/p4gPC9wMVLfG0/giphy.webp)
 
 <!--
 **samyy-saldanha/samyy-saldanha** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
